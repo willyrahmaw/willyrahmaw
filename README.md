@@ -13,7 +13,7 @@
 - ⚡ Fun fact **I think I will to be expert Programmer**
 
 - Portofolio
-  https://aboutwillyrw.tech/
+  https://willyrw.site/
   
 <h3 align="left">Connect with me:</h3>
 <p align="left">
